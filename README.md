@@ -1,2 +1,2 @@
 # Pushpa
-Learning github form telugu skillhub channel.
+pushpa pushpa raj. Nee Avva Thagedhe le.
