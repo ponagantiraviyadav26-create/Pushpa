@@ -1,2 +1,2 @@
 # Pushpa
-Learning purpose
+Learning github form telugu skillhub channel.
